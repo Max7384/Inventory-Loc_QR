@@ -1,0 +1,1 @@
+# Inventory-Loc_QR
